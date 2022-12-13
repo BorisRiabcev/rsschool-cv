@@ -1,1 +1,1 @@
-# rsschool-cv
+https://BorisRiabcev.github.io/rsschool-cv/
